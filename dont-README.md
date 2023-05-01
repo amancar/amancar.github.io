@@ -9,9 +9,7 @@
 
 ---
 
-![一人二狗, A man a car](https://upload-images.jianshu.io/upload_images/2471034-4a359b4a0fcfd11d.png)
-
----
+![一人二狗, A man a car](https://upload-images.jianshu.io/upload_images/2471034-48292e62fadab811.jpg)
 
 主要入口👉 [点我：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
 
