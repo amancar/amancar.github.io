@@ -9,7 +9,9 @@
 
 -----
 
-一人二狗, A man a car [一人二狗, A man a car](https://www.kuleiman.com/159025/index.html)
+主要入口👉 [点我：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
+
+Main Entrance👉 [Click Me：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
 
 -----
 
