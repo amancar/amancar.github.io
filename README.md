@@ -15,9 +15,9 @@
 
 ---
 
-主要入口👉 [点我看全景：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
+👉 [点我看全景：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
 
-Main Entrance👉 [Click Me For Piano：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
+👉 [Click Me For Piano：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
 
 ---
 
