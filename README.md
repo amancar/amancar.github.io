@@ -46,8 +46,6 @@ G228（辽宁丹东市-广西东兴市）
 
 👉 [点我看全景：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
 
-👉 [Click Me For Piano：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
-
 ---
 
 [![](https://camo.githubusercontent.com/bea13a0db81da634bc1c451e96144ce862038bd29ae7c6ae91e7a918b8465569/68747470733a2f2f75706c6f61642d696d616765732e6a69616e7368752e696f2f75706c6f61645f696d616765732f323437313033342d383436613466633232643061313463642e6a70673f696d6167654d6f6772322f6175746f2d6f7269656e742f7374726970253743696d61676556696577322f322f772f313230302f666f726d61742f77656270 "A man, a car")](https://amancar.github.io/)
@@ -61,3 +59,11 @@ Hi~ My ![Visitor Count](https://profile-counter.glitch.me/Christmas/count.svg) v
 I'm glad you're here. This is the personal homepage website of 'A man, a car'.
 
 'A man, a car' will take you 720 ° immersive view of beautiful scenery from all over the world.
+
+---
+
+👉 [点我看全景：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
+
+👉 [Click Me For Piano：一人二狗, A man a car](https://www.kuleiman.com/159025/index.html) 
+
+---
